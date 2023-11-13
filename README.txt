@@ -1,6 +1,2 @@
-Hello Git and Github
-I am the one who can do everything right
-fuck this all
-Shit  yahoo
-fuck all of you
+I don't know how your head is functionning
 
